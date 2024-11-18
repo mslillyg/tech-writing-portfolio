@@ -1,0 +1,1 @@
+This repo serves as a portfolio of my writing. Much of my experience occurred while under contracts with NASA's Johnson Space Center, so they are not easily accessible for this purpose. Please let me know if you'd like to see a particular sample; I'm always interested in expanding my knowledge. Thanks for looking!
